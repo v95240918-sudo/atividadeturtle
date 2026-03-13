@@ -1,2 +1,0 @@
-# atividadeturtle
-#aluno vinicius lucena
